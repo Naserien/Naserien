@@ -55,7 +55,7 @@
 ## 🤝 Connect With Me  
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/madeline-zeng-77652626b/)  
-- 📫 [madelinezeng777@gmail.com](mailto:madelinezeng777@gmail.com)  
+- 📫 [zqzeng@bu.edu](mailto:zqzeng@bu.edu)  
 
 
 ---
