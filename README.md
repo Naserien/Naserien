@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Madeline  
+# 👋 Hi, I'm Madeleine  
 
 ---
 
